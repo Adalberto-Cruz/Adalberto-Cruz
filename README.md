@@ -35,4 +35,4 @@ Artificial Intelligence Technology Student at FIAP (2026–2027)
 
 ---
 
-**Contact:** acdc0137@gmail.com[cite: 1] | [LinkedIn](https://linkedin.com/in/adalberto-cruz-)[cite: 1] | [GitHub](https://github.com/Adalberto-Cruz)[cite: 1]
+**Contact:** acdc0137@gmail.com | [LinkedIn](https://linkedin.com/in/adalberto-cruz-) | [GitHub](https://github.com/Adalberto-Cruz)
