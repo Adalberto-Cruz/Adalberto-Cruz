@@ -1,4 +1,4 @@
-# Hi, I'm Adalberto Alves Cruz 👋
+# BU, I'm Adalberto Alves Cruz 👻
 **Artificial Intelligence Technology Student at FIAP**
 
 ---
